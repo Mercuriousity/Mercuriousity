@@ -1,4 +1,2 @@
-- Mercuriousity, or Mercury, or Merc, for short.
-- Currently making models, very low poly one.
-- Learning how to do better in modeling.
-- Discord: Charlote#8775
+You are watching a master at work
+> proceed to fail everything
